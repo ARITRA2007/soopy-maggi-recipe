@@ -1,0 +1,1 @@
+boil water , add maggi,add vegitables,add maggi massala and finaly serve it
